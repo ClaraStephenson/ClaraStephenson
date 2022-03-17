@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ClaraStephenson
+
+As a former lawyer, activist, PCOS patient expert and entrepreneur, I founded the website lesnatives.fr to provide women affected by PCOS with reliable and accessible information and resources to promote their hormonal health and make informed choices for themselves.   After researching how PCOS works, its causes and possible therapeutic approaches, along with discussing the subject in depth with a panel of healthcare providers and patients, I want to push my effort further.   OVALAB INC.'s ambition is to rethink the therapeutic approach to PCOS and use innovation to demonstrate that a different kind of health is possible for women.
